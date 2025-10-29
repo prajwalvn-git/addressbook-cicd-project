@@ -1,11 +1,3 @@
-
-this is our new chnage this ASDSADASD sdsdda
-
-this this is change  SADADASDASD  esdads assdasdas sd a sddfsfdsfdsfdsdfsdssd
-hello xczczssaadsdaa
-hiasdadadsdasdadads
-
-oollaalalaa
 this is my final repo adsadad
 this is the update
 this is newipdate
